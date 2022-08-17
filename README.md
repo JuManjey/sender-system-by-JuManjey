@@ -1,1 +1,1 @@
-# sender-system-by-JuManjey
+# Sender system by JuManjey
